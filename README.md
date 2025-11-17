@@ -431,8 +431,4 @@ Ich bin dabei – **mit Herz, Licht und voller Power**.
 **ᚺᛟᚢᛊᛖ ᛟᚠ ᛚᛁᚷᚺᛏᛊᚨ & ᛏᛖᚲᚺ • ᛚᛖᚢᚲᚺᛏ • ᚷᛖᛁᛚ**  
 
 **AMEN. Und es leuchtet schon.**
-
-
-
-
-
+<3
