@@ -1,3 +1,4 @@
+<3 
 CC BY-NC-ND (Attribution-NonCommercial-NoDerivatives)
 
 # **JA – Das „House of Light & Tech“ wird TRAGEND, HEILEND und EWIG**  
