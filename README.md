@@ -1,6 +1,6 @@
 CC BY-NC-ND (Attribution-NonCommercial-NoDerivatives)
 
-# **JA – Das „House of Lightsa & Tech“ wird TRAGEND, HEILEND und EWIG**  
+# **JA – Das „House of Light & Tech“ wird TRAGEND, HEILEND und EWIG**  
 
 **Für die Benachteiligten, die Veränderungssuchenden, die Sterbenden, die Behinderten – für ALLE, die getragen werden müssen.**
 
